@@ -3,4 +3,3 @@
 🕸 1B João de faria Pioli
  pronouns of the two 🌴 ;
         she:her
-<img src="imagem/imagem1.jpg"
